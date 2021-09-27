@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @brianevans96
+- 👋 Hi, I’m Brian Evans
 Oakland University
